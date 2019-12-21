@@ -13,7 +13,7 @@ And dream of each sand grain is still
 The same as was ever before  
 To dissipate powe-er,  
 
-But its whole world,  
+But this whole world,  
 That banged like a flash in the dark,  
 Its winter awaiting ahead  
 Goes on aeons passing.  
